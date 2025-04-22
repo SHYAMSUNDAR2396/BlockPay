@@ -94,4 +94,4 @@ Businesses wanting to cater to the growing crypto-savvy audience.
 </div>
 
 
-Developed by Madhanraj M, Madesh, Rakesh, Shyam Sundar
+Developed by Madhanraj M, Madesh, Rakesh, M Shyam Sundar
